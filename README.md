@@ -18,3 +18,4 @@ I will put a coffe shop and bathrooms in BART trains
 I will put in Chargers on trains and give them wifi 
 I will put tv screens on the seat backs so people can watch movies
 For Fleet week all BART trains will be free
+I will make A BART train that has windows all over even on the roof for the Fleet Week Airshow
